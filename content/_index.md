@@ -63,7 +63,7 @@ XXV. [Permanente reforma de toda nuestra vida](/1_xxv)
 
 ## PARTE SEGUNDA: CONSEJOS PARA LA VIDA DE DIOS EN NOSOTROS
 
-I. La comunicación interior
+I. [La comunicación interior](/2_i)
 
 II. Humilde sujeción
 
